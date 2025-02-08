@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @SiddhantM2305
 - 👀 I’m interested in Eletronic and learning New Things 
-- 🌱 I’m currently Studing in BE EBIGINEERING EXTC at ST.FRANCIS INSTITUDE OF TECHNOLOGY
+- 🌱 I’m currently Studing in BE EXTC at ST.FRANCIS INSTITUDE OF TECHNOLOGY
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me Text me on siddhantj.monde23@gmail.com 
+- 📫 Text me on siddhantj.monde23@gmail.com 
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am a bit introvert
 
